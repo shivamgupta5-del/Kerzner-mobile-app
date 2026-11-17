@@ -1,1 +1,0 @@
-# Kerzner-mobile-app
